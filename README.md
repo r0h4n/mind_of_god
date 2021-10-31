@@ -55,7 +55,7 @@ Translator: Rohan Rhishikesh Kanade <kanaderohan@gmail.com><+91-9823299501>
 - To understand some subject/object means to be able to give an (representative) example similar to the (intentionally) given set of cause and effects or constraints or correlations.
 - God/Ishwar is always a student of Absolute Truth. He is a student of himself. This is his Swadharma.
 - Absolute Truth is the answer to below 2 questions
-  + For which root cause, where and how long will I be learning (Karma)? In the case of God, he is acting/studying for his root cause (which is permanent bliss).
+  + For which root cause, where and how long will I be learning (Karma)? In the case of God, he is acting/studying for his root cause (Infinite Bliss).
   + What are the limits of my intent and the manifestations occurring due to my intent (Iccha and Adhikar).
 - Study of Absolute Truth requires Absolute Self Love (google search: ADVAITA). Science usually calls it Zero Point Field/Energy.
 - To expand, observe and celebrate and to prove the immense Self Love, God/Ishwar thinks and creates the first Macro and Micro observer, mediator, destroyer (google search: DVAITA, SAMKHYA) of itself. This is the first cause and the effect is the creation of the Macro and Micro Universe(s) inside God/Ishwar.
