@@ -80,7 +80,7 @@ Translator: Rohan Rhishikesh Kanade <kanaderohan@gmail.com><+91-9823299501>
 - Don’t worry about losing new experiences found after practice, learn how to preserve/use it.
 - Ever growing Collection of absolute unique/pure experiences is Ishwar/God.
 - Turiya, the 4th state of existence is you without any of your past/present/future space, time induced cause and effects.
-- Satta Vruti makes you do Satkarma
+- Satwik Diet and Thoughts give you Satwik Intent/Vruti which make it easy to do Satkarma.
 - All experience is enabled first by Belief/Vision and then realized/preserved by Wisdom and experienced by Actions.
 - You should continue your Life towards Absolute Truth via Hope.
 - Use third party examples of such Life/Truth to inflate/Deflate/match Ego to prove God.
