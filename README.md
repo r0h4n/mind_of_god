@@ -1,9 +1,10 @@
-# What is in the mind of God?
+# What is always in the mind of God?
 
 # Answer: “Increase your Lifespan and Bliss for FREE”
 
 - Creator: Rohan Rhishikesh Kanade 
 - Collaboration: <kanaderohan@gmail.com><+91-9823299501>
+- Location: Parner, District Ahmednagar, India.
 
 
 ## Intro
