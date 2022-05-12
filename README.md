@@ -99,6 +99,18 @@ Translator: Rohan Rhishikesh Kanade <kanaderohan@gmail.com><+91-9823299501>
 - Grand unified theory of everything can be experienced best when you become everything.
 - Life > Longevity > Satisfaction > Happiness > Logic
 
+### Exercise questions (hint: Answer is YES for all questions):
+- Am I feeling/using/measuring/enjoying/living via space/time or is space/time feeling/using/measuring/enjoying/living via me?
+- Am I feeling/using/measuring/enjoying/living my mind/body or is my mind/body feeling/using/measuring/enjoying/living through me?
+- Am I feeling/using/measuring/enjoying/living via subject/object/friends/family or is the subject/object/friends/family feeling/using/measuring/enjoying/living via me?
+- Am I feeling/using/measuring/enjoying/living God's or Universe's energy or is God or Universe's energy feeling/using/measuring/enjoying/living me?
+- Am I in God's mind or is God in my mind?
+- Am I in God's heart or is God in my heart?
+- Am I in God's intent or is God in my intent?
+- Am I living for God's Goal or is God living for my Goal?
+- Is Living the only Goal?
+- Am I God or is God me?
+
 #### References
 - http://www.poornawadlifeengg.org/poornawad.html
 - A Beginner's Guide to Deep Reinforcement Learning (https://skymind.ai/wiki/deep-reinforcement-learning)
