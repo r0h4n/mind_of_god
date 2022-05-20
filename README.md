@@ -3,7 +3,7 @@
 # Answer: “Increase your Lifespan and Bliss for FREE”
 
 - Creator: Rohan Rhishikesh Kanade 
-- Collaboration: <kanaderohan@gmail.com><+91-9823299501>
+- Collaboration: <kanaderohan@gmail.com> <+919823299501>
 - Location: Parner, District Ahmednagar, India.
 
 
@@ -42,7 +42,7 @@
 
 
 ## Mind/Algorithm of God/Ishwar
-Translator: Rohan Rhishikesh Kanade <kanaderohan@gmail.com><+91-9823299501>
+Observer: Rohan Rhishikesh Kanade <kanaderohan@gmail.com> <+919823299501>
 
 - SwaDharma (your own unique goal in life) =~ Positive/Unique state of your Mind and Body (matter) that allows you to live your goals uniquely and grow personally, in family and in society.
 - Universal Dharma/Goal and SwaDharma (personal) are the same principally, only when pursuing both together provides a balance between your mind and body (matter) which leads to longevity and unique/pure goals of you and the Universe via absolute discipline, order, Love for you and the Universe.
@@ -95,10 +95,10 @@ Translator: Rohan Rhishikesh Kanade <kanaderohan@gmail.com><+91-9823299501>
 - The first rule of productivity is focus. Do one thing, finish it, then move to the next thing.
 - Once you master the practice of the above topics you will realize that intuition is your best friend, think less but be precise and act more.
 - Improve the ability to remain in context no matter what the subject or object irrespective of the state of your mind, body (matter), surroundings (space/time).
-- Use a hot-cold joy-sorrow honor-dishonor alternating approach towards all situations in life and rise above these dualities
+- Use a hot-cold joy-sorrow honor-dishonor alternating approach towards all situations in life and rise above these dualities.
 - Success = SatShishya(Opportunity + Capability + Intent) + (SatGurunath’s intent + God’s Intent).
 - Grand unified theory of everything can be experienced best when you become everything.
-- Life > Longevity > Satisfaction > Happiness > Logic
+- Longevity > Satisfaction > Happiness > Logic
 
 ### Exercise questions (hint: Answer is YES for all questions):
 - Am I feeling/using/measuring/enjoying/living via space/time or is space/time feeling/using/measuring/enjoying/living via me?
