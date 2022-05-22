@@ -111,7 +111,7 @@ Observer: Rohan Rhishikesh Kanade <kanaderohan@gmail.com> <+919823299501>
 - Am I living for God's Goal or is God living for my Goal?
 - Is Living the only Goal?
 - Am I God (with all his qualities/Gunas and Rasas) or is God me?
-- Am I Everything?
+- Am I that which is Everything, Everywhere, Everytime?
 
 #### References
 - http://www.poornawadlifeengg.org/poornawad.html
