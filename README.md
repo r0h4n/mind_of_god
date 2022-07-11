@@ -4,7 +4,8 @@
 
 - Creator: Rohan Rhishikesh Kanade 
 - Collaboration: <kanaderohan@gmail.com> <+919823299501>
-- Location: Parner, District Ahmednagar, India.
+- Location: Jeevan Kala Mandir, Village Parner, District Ahmednagar, State Maharashtra, India, Pin code 414302 ( Co-ordinates: 19.002129, 74.437404 )
+- Map: https://goo.gl/maps/GkSs8hFYxVD68EdXA
 
 
 ## Intro
