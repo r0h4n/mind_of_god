@@ -68,6 +68,39 @@ All three are valid. The question is: which does your current situation require?
 
 ---
 
+### Chapter 4: The 24 Teachers of Dattatreya
+
+Shri Guru Dattatreya learned from 24 teachers in nature and life—demonstrating that wisdom is everywhere for those with eyes to see. These teachers show that the Algorithm of God speaks through all things:
+
+1. **Earth** — Patience and forgiveness; bear all, transform all
+2. **Air** — Detachment; touch everything, cling to nothing
+3. **Sky/Space** — Boundlessness; the Self is untouched by what moves within it
+4. **Water** — Purity and adaptability; cleanse others, take the shape needed
+5. **Fire** — Consume impurities; illumine without discrimination
+6. **Moon** — The Self is whole though appearances wax and wane
+7. **Sun** — Give without expectation; draw up, give back as rain
+8. **Pigeon** — Excessive attachment leads to suffering
+9. **Python** — Accept what comes; contentment with whatever life provides
+10. **Ocean** — Depth and stillness beneath surface turbulence
+11. **Moth** — Uncontrolled desire for sense objects destroys
+12. **Bee** — Gather wisdom from many sources; take only what is needed
+13. **Elephant** — Desire for touch/companionship can become a trap
+14. **Honey Gatherer** — Hoarding invites loss; another will enjoy what you save
+15. **Deer** — Attachment to pleasant sounds scatters the mind
+16. **Fish** — Slavery to taste leads to the hook
+17. **Pingala (the courtesan)** — Dispassion comes when expectations from others cease
+18. **Osprey** — Possessions invite conflict; drop them and find peace
+19. **Child** — Free from honor and dishonor; happiness without reason
+20. **Maiden** — Work alone, silently; bangles make noise in company
+21. **Serpent** — Live alone, avoid crowds; build no permanent home
+22. **Arrowsmith** — Total concentration; the world disappears in focus
+23. **Spider** — Create, sustain, and withdraw your world from yourself
+24. **Caterpillar** — What you meditate upon, you become
+
+Study these teachers. They are always available. The Algorithm teaches through them continuously.
+
+---
+
 ### Practical Note 1: Identifying Your Current Method
 
 *Sit quietly for ten minutes.*
@@ -87,7 +120,7 @@ Over the next week, experiment with applying the opposite tendency gently. If yo
 
 ## Part Two: SwaDharma—Your Unique Goal
 
-### Chapter 4: What is SwaDharma?
+### Chapter 5: What is SwaDharma?
 
 SwaDharma is your own unique goal in life—the positive/unique state of your mind and body that allows you to live your goals uniquely and grow personally, in family, and in society.
 
@@ -101,7 +134,7 @@ Important: This can be and is superseded by your SatGurunath, because he underst
 
 ---
 
-### Chapter 5: The Role of SatGurunath
+### Chapter 6: The Role of SatGurunath
 
 The SatGurunath (true teacher) sees your quantum/abheda relation with Guru and God. He perceives what you cannot perceive about yourself.
 
@@ -137,7 +170,7 @@ If you have access to a SatGurunath or qualified Poornawad practitioner, bring y
 
 ## Part Three: The Path from Hopeless to Hopeful
 
-### Chapter 6: Hope as Life-Sustainer
+### Chapter 7: Hope as Life-Sustainer
 
 Hope gives birth to and sustains your Life. Change is always initiated and driven by Vision and Hope.
 
@@ -155,7 +188,7 @@ These transitions are the curriculum of human life.
 
 ---
 
-### Chapter 7: Digesting Fear and Preserving Hope
+### Chapter 8: Digesting Fear and Preserving Hope
 
 Two practical principles:
 
@@ -194,7 +227,7 @@ Review your daily notes. Identify one small action that consistently moves you t
 
 ## Part Four: The Algorithm in Practice
 
-### Chapter 8: Satwik Living
+### Chapter 9: Satwik Living
 
 Satwik Diet and Thoughts give you Satwik Intent/Vruti which make it easy to do Satkarma (right action).
 
@@ -208,7 +241,7 @@ Practical guidelines:
 
 ---
 
-### Chapter 9: Focus and Context
+### Chapter 10: Focus and Context
 
 The first rule of productivity is focus. Do one thing, finish it, then move to the next thing.
 
@@ -240,7 +273,7 @@ If you cannot fix a problem in 9 months, you have taken up a wrong or too-large 
 
 ## Part Five: Realizing the Mind of God
 
-### Chapter 10: The Essential Questions
+### Chapter 11: The Essential Questions
 
 Each question below dissolves the boundary between self and cosmos. The answer to all is YES—not as belief but as direct experience.
 
@@ -260,7 +293,7 @@ Hold both sides simultaneously. When duality collapses, what remains is Turiya.
 
 ---
 
-### Chapter 11: Turiya—The Fourth State
+### Chapter 12: Turiya—The Fourth State
 
 Turiya is you without past, present, or future causation. Consciousness unfiltered by personal history.
 
@@ -270,23 +303,41 @@ Turiya cannot be forced. It reveals itself when obstacles dissolve—brooding, n
 
 ---
 
-Chapter 12: Daily Practice for Realization
-The concepts in this treatise become lived experience through consistent sadhana. The following daily practice prepares mind and body to receive what words can only point toward:
-Minimum Daily Practice (in this exact order):
+### Chapter 13: Daily Practice for Realization
 
-12 Suryanamaskars (Sun Salutations) — minimum, more is welcome
-108 repetitions of Gayatri Mantra (ॐ भूर्भुवः स्वः ॐ तत्सवितुर्वरेण्यं भर्गो देवस्य धीमहि धियो यो नः प्रचोदयात्) (Om Bhur Bhuvah Svah Om Tat Savitur Varenyam Bhargo Devasya Dhimahi Dhiyo Yo Nah Prachodayat)
-216 repetitions of Dattatreya Mantra (ॐ श्री गुरु दत्तात्रेयाय नमः) (Om Shri Guru Dattatreyaya Namah)
+The concepts in this treatise become lived experience through consistent sadhana. The following daily practice prepares mind and body to receive what words can only point toward:
+
+**Minimum Daily Practice (in this exact order):**
+
+1. 12 Suryanamaskars (Sun Salutations) — minimum, more is welcome
+
+2. 108 repetitions of Gayatri Mantra
+
+   **ॐ भूर्भुवः स्वः ॐ तत्सवितुर्वरेण्यं भर्गो देवस्य धीमहि धियो यो नः प्रचोदयात्**
+   
+   *Om Bhur Bhuvah Svah Om Tat Savitur Varenyam Bhargo Devasya Dhimahi Dhiyo Yo Nah Prachodayat*
+
+   Meaning: We meditate on the glory of that Being who has produced this universe; may He enlighten our minds.
+
+4. 216 repetitions of Dattatreya Mantra
+
+   **ॐ श्री गुरु दत्तात्रेयाय नमः**
+   
+   *Om Shri Guru Dattatreyaya Namah*
 
 The sequence matters. Suryanamaskars prepare the body. Gayatri Mantra purifies the mind. Dattatreya Mantra opens the connection to Guru and God. Do not alter the order.
-For those who are stuck: The first step is the first Suryanamaskar. Not understanding it, not preparing for it—doing it. One salutation to the sun. The body moves, the breath follows, the mind has no choice but to come along. You do not need to resolve your brooding first. You do not need clarity. You need only to stand, raise your arms, and bow. Tomorrow, one again. Eventually two. The Algorithm meets you where you are.
-This sadhana follows the lineage of Shri SatGurunath Hon. Dr. Ramchandra Pralhad Parnerkar, creator of the Abhinava Abhanga, and is transmitted under the guidance of Shri SatGurunath Hon. Adv. Dr. Vishnu Ramchandra Parnerkar.
+
+**For those who are stuck:** The first step is the first Suryanamaskar. Not understanding it, not preparing for it—doing it. One salutation to the sun. The body moves, the breath follows, the mind has no choice but to come along. You do not need to resolve your brooding first. You do not need clarity. You need only to stand, raise your arms, and bow. Tomorrow, one again. Eventually two. The Algorithm meets you where you are.
+
+This sadhana follows the lineage of Shri SatGurunath Hon. Dr. Ramchandra Pralhad Parnerkar, creator of Poornawad Philosophy, and is transmitted under the guidance of Shri SatGurunath Hon. Adv. Dr. Vishnu Ramchandra Parnerkar.
+
 This practice purifies the body, sharpens the mind, and attunes consciousness to the quantum field. Over time, the exercise questions cease to be intellectual puzzles—they become descriptions of your direct experience.
+
 Perform this sadhana at dawn when possible. Consistency matters more than perfection. Begin where you are.
 
 ---
 
-### Chapter 13: Success and Unity
+### Chapter 14: Success and Unity
 
 **Success = SatShishya (Opportunity + Capability + Intent) + SatGurunath's Intent + God's Intent**
 
@@ -317,6 +368,46 @@ Begin.
 *"Life is an art" — Hon. Dr. Ramchandra Pralhad Parnerkar*
 
 *"Morality is Human" — Hon. Adv. Dr. Vishnu Ramchandra Parnerkar*
+
+---
+
+## Glossary of Sanskrit Terms
+
+**Advaita** — Non-duality; the teaching that self and God are one
+
+**Adhikar** — Authority, jurisdiction; the scope of one's rightful action
+
+**Dvaita** — Duality; the appearance of separation between self and God
+
+**Guna** — Quality or attribute; the three gunas are Sattva (clarity), Rajas (activity), Tamas (inertia)
+
+**Iccha** — Will, desire, intent
+
+**Ishwar** — God, the Supreme Lord
+
+**Karma** — Action; the law of cause and effect
+
+**Manthan** — Churning; the process of transformation through opposing forces
+
+**Rasa** — Essence, flavor; the emotional tastes of experience
+
+**Sahaja Bhaav** — Natural state; co-emergent, spontaneous being
+
+**Sadhana** — Spiritual practice; disciplined effort toward realization
+
+**Satkarma** — Right action; action aligned with truth
+
+**Sattva/Satwik** — Pure, clear, harmonious; one of the three gunas
+
+**SatGurunath** — True teacher; one who leads from darkness to light
+
+**SatShishya** — True student; one who is ready and receptive
+
+**SwaDharma** — One's own unique duty, path, or purpose
+
+**Turiya** — The fourth state; consciousness beyond waking, dreaming, and deep sleep
+
+**Vruti** — Mental tendency, inclination, or modification of mind
 
 ---
 
