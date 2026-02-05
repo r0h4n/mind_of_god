@@ -270,19 +270,18 @@ Turiya cannot be forced. It reveals itself when obstacles dissolve—brooding, n
 
 ---
 
-### Chapter 12: Daily Practice for Realization
-
+Chapter 12: Daily Practice for Realization
 The concepts in this treatise become lived experience through consistent sadhana. The following daily practice prepares mind and body to receive what words can only point toward:
+Minimum Daily Practice (in this exact order):
 
-**Minimum Daily Practice:**
-- 12 Suryanamaskars (Sun Salutations)
-- 108 repetitions of Gayatri Mantra
-- 108 repetitions of Dattatreya Mantra (*Om Shri Guru Dattatreyaya Namaha*)
+12 Suryanamaskars (Sun Salutations) — minimum, more is welcome
+108 repetitions of Gayatri Mantra (ॐ भूर्भुवः स्वः ॐ तत्सवितुर्वरेण्यं भर्गो देवस्य धीमहि धियो यो नः प्रचोदयात्) (Om Bhur Bhuvah Svah Om Tat Savitur Varenyam Bhargo Devasya Dhimahi Dhiyo Yo Nah Prachodayat)
+216 repetitions of Dattatreya Mantra (ॐ श्री गुरु दत्तात्रेयाय नमः) (Om Shri Guru Dattatreyaya Namah)
 
+The sequence matters. Suryanamaskars prepare the body. Gayatri Mantra purifies the mind. Dattatreya Mantra opens the connection to Guru and God. Do not alter the order.
+For those who are stuck: The first step is the first Suryanamaskar. Not understanding it, not preparing for it—doing it. One salutation to the sun. The body moves, the breath follows, the mind has no choice but to come along. You do not need to resolve your brooding first. You do not need clarity. You need only to stand, raise your arms, and bow. Tomorrow, one again. Eventually two. The Algorithm meets you where you are.
 This sadhana follows the lineage of Shri SatGurunath Hon. Dr. Ramchandra Pralhad Parnerkar, creator of the Abhinava Abhanga, and is transmitted under the guidance of Shri SatGurunath Hon. Adv. Dr. Vishnu Ramchandra Parnerkar.
-
 This practice purifies the body, sharpens the mind, and attunes consciousness to the quantum field. Over time, the exercise questions cease to be intellectual puzzles—they become descriptions of your direct experience.
-
 Perform this sadhana at dawn when possible. Consistency matters more than perfection. Begin where you are.
 
 ---
