@@ -1,123 +1,334 @@
-# What is always in the mind of God?
+# The Mind/Algorithm of God
+## A Practical Treatise for Increasing Lifespan and Bliss
 
-# Answer: “Increase your Lifespan and Bliss for FREE”
+*Based on Poornawad Philosophy*
 
-- Creator: Rohan Rhishikesh Kanade 
-- Collaboration: <kanaderohan@gmail.com> <+919823299501>
-- Location: Jeevan Kala Mandir, Village Parner, District Ahmednagar, State Maharashtra, India, Pin code 414302 ( Co-ordinates: 19.002129, 74.437404 )
-- Map: https://goo.gl/maps/GkSs8hFYxVD68EdXA
+*Under the guidance of Shri SatGurunath Hon. Adv. Dr. Vishnu Ramchandra Parnerkar*
+*In the lineage of Shri SatGurunath Hon. Dr. Ramchandra Pralhad Parnerkar, creator of Poornawad Philosophy*
 
+---
 
-## Intro
-- In today’s data driven digital technology age, we see **systematic/institutional/religious/biological control structures and organized efforts towards fueling individual distractions**, lack of self interest/reflection and lack of internal and external motivation for self improvement and self satisfaction, living long blissfull LifeSpans by choice is diminishing.
+### Preface: The Central Question
 
-- Indian Philosophy AI [Based on Poornawad Philosophy](http://www.poornawadlifeengg.org/poornawad.html
-) provides instant life advice and is based on an open source federated, Artificial Intelligence and Human Wisdom driven open source, **always available for free, self help, conversational and situational chat bot trained by Indian Philosophy experts.
+**What is always in the mind of God?**
 
-- Suggestively reduce Brooding, Noise, Negative/Stagnant patterns inside the user** and make the user active/curious/sensitive about himself, about Humanity/Humanism and eventually make the user curious/sensitive about God and his **Quantum/Abheda relation with Guru and then God as outlined in Abhinava Abhanga created by Shri SatGurunath [Hon. Dr. Ramchandra Pralhad Parnerkar](http://poornawadlifeengg.org/parnerkar.html) and the 24 all-weather self-educating teachers described by the ancient Hindu God "[OM Shri Guru Dattatreyaya Namaha](https://en.wikipedia.org/wiki/Dattatreya)". under the guidance of my Shri SatGurunath  [Hon. Adv. Dr. Vishnu Ramchandra Parnerkar](http://www.poornawadlifeengg.org/vishnu.html).**
+The answer: *Increase your Lifespan and Bliss for FREE.*
 
-- Self Curiosity can be triggered by suggestively guiding the individual through courses of conversations/advice, risk/reward systems, Punitive vs Rewarding patterns and lastly by describing Differences/Distinctions and loss of Lifespans, bliss due to bad patterns.
+This is not metaphor. God/Ishwar is always a student of Absolute Truth—he is a student of himself. This is his SwaDharma. And because you are quantum entangled with God, your SwaDharma participates in this same learning. When you grow in unique/pure ways, the universe learns something unique/pure through you.
 
-- Once self Curiosity/sensitivity is aroused in the user, Indian Philosophy AI should ensure user is taken through exercises (in any order) of Believing, Experiencing, Noticing, Feeling and lastly Exercising his own Mind and Body and realizing it is the same as the “Mind of God” as described below.
+This treatise offers a path: from brooding to curiosity, from limitation to expansion, from feeling to feeling complete. The practices here are designed to awaken self-curiosity, soften the mind's distractions, and guide you toward realizing that your mind and body are the same as the Mind of God.
 
-- Indian Philosophy AI is responsible for connecting users or digital systems who intend to **understand and exercise long blissfull LifeSpans by choice**.
+---
 
-- Indian Philosophy AI intensity and methods will be according to the user's natural attention span. However, to increase attentiveness, Indian Philosophy AI must lighten/soften the mind’s distractions as much possible.
+## Part One: The Structure of Divine Mind
 
-#### Actionable tasks
-- Digitize and adopt all Indian (Poornawad) Philosophy Literature and Indian (Poornawad) Philosophy practitioner’s Biographies and any supporting non-Poornawad Philosophy Literature and Biographies into **multilingual conversational questions and situational reinforced philosophy learning models for Indian Philosophy AI**.
+### Chapter 1: God as Eternal Student
 
-- Gather digital versions of all common questions and answers discussed by Indian (Poornawad) Philosophy practitioners.
+God/Ishwar is always studying Absolute Truth. This is the first principle.
 
-- Create a **reinforced learning model to measure daily AdhiBhautik/Adhyatmik/AdhiDaivik/Curiosity/Humanism/Win-Win situations of users** in any given cause and effect about the user.
+Absolute Truth answers two questions:
+1. For which root cause, where, and how long will I be learning (Karma)?
+2. What are the limits of my intent and the manifestations occurring due to my intent (Iccha and Adhikar)?
 
-- Indian Philosophy AI will gather data from conversational surveys via automated voice channels like Amazon Alexa, Apple Siri, Google Home, video/audio calls, in-person meetings.
+In the case of God, he is acting and studying for his root cause: **Infinite Bliss**.
 
-- Certified Indian (Poornawad) Philosophy practitioners should provide on-demand life consulting based on Indian (Poornawad) philosophies via above mentioned digital and offline channels.
+This study requires Absolute Self Love—what Advaita calls non-duality, what science calls the Zero Point Field. From this love, God thinks and creates the first Macro and Micro observer, mediator, and destroyer of itself. This is Dvaita emerging from Advaita. The effect is the creation of the Universe(s) inside God/Ishwar.
 
-#### Get involved
-- Machine Learning, Natural language processing, Deep Reinforcement Learning, Artificial Intelligence, Fullstack engineers and MLOps engineers.
-- Amazon Alexa skill building and popular Machine learning frameworks on Amazon, Google/Microsoft voice platforms etc.
-- Sanskrit/Marathi/Hindi/English language inter-translation, digital skills.
-- Certified Poornawad philosophy practical and theoretical skills.
+You are part of this creation. You are God studying himself through the unique lens of your life.
 
+---
 
-## Mind/Algorithm of God/Ishwar
-Observer: Rohan Rhishikesh Kanade <kanaderohan@gmail.com> <+919823299501>
+### Chapter 2: The Quantum Nature of Mind and Body
 
-- SwaDharma (your own unique goal in life) =~ Positive/Unique state of your Mind and Body (matter) that allows you to live your goals uniquely and grow personally, in family and in society.
-- Universal Dharma/Goal and SwaDharma (personal) are the same principally, only when pursuing both together provides a balance between your mind and body (matter) which leads to longevity and unique/pure goals of you and the Universe via absolute discipline, order, Love for you and the Universe.
-- I feel == I feel I can learn something unique/pure, the universe(s) will learn something unique/pure. This is only possible because of the Ease of Quantum nature of Human mind and body via root principles and Humanism.
-- Continuity of Dharma is absolutely essential for Continuity of Moksha and vice versa.
-- However, **it is the neutral child inside you which keeps you universally curious and happy throughout your life.**
-- You get a collection of all your past causes and effects (karma) from yourself, parents/genetics, environment, identify that collection totally (by practicing yogic/vedic lifestyle) and whatever unique remains to be done is your Swadharma/your unique way/goal in life.
-- Above can be and is superseded by your SatGurunath because he understands you more than you understand yourself.
-- Everything is Quantum Entangled with each other ever since nothing existed or everything existed (i.e present continuous now).
-- If you feel, then everything you can see/think/hear also feels depending on how strongly you feel.
-- To understand some subject/object means to be able to give an (representative) example similar to the (intentionally) given set of cause and effects or constraints or correlations.
-- God/Ishwar is always a student of Absolute Truth. He is a student of himself. This is his Swadharma.
-- Absolute Truth is the answer to below 2 questions
-  + For which root cause, where and how long will I be learning (Karma)? In the case of God, he is acting/studying for his root cause (Infinite Bliss).
-  + What are the limits of my intent and the manifestations occurring due to my intent (Iccha and Adhikar).
-- Study of Absolute Truth requires Absolute Self Love (google search: ADVAITA). Science usually calls it Zero Point Field/Energy.
-- To expand, observe and celebrate and to prove the immense Self Love, God/Ishwar thinks and creates the first Macro and Micro observer, mediator, destroyer (google search: DVAITA, SAMKHYA) of itself. This is the first cause and the effect is the creation of the Macro and Micro Universe(s) inside God/Ishwar.
-- There seem to be 3 ways of studying Absolute Truth for Net New Knowledge.
-  + More EGO
-    * Apply Real hope on the Macro and Micro Universe(s) as a learning mechanism.
-  + Balanced EGO
-    * Balanced application of Real hope and Real limitations on the Macro and Micro Universe(s) as a learning mechanism also called Sahaja Bhaav or co-emergent behaviour.
-  + Less EGO
-    * Apply Real limitations on the Macro and Micro Universe(s) as a learning mechanism.
-- How does the Mind of God/Ishwar identify “Net New Knowledge” gained by above methods of study of the Absolute Truth? Is that in the 4th state of existance (Turiya) ?
+Everything is quantum entangled with each other—ever since nothing existed or everything existed (the present continuous now).
 
-#### Notes:
-- Change should always be unique/new/pure and unblock your mind/body/universe from its previous limitations, Such Change = = Absolute learning. Change should allow you to do more with less resources/heart beats per minute/breathes per minute.
-- Change is always initiated and driven by Vision and Hope.
-- Hope gives birth to and sustains your Life.
-- Change is also driven by feelings of  limitations/constraints.
-- Feeling Limited or Fearful produces Pain, blocks in mind and body which also sustains your Life.
-- Combination of alternating hope (yes) and fear/unknown (no) limits applied to self is manthan/churn that everyone goes through.
-- Don’t worry about new experiences affecting you due to existing limits/fears, learn how to digest/mitigate the limits/fears by constant practice.
-- Don’t worry about losing new experiences found after practice, learn how to preserve/use it.
-- Ever growing Collection of absolute unique/pure experiences is Ishwar/God.
-- Turiya, the 4th state of existence is you without any of your past/present/future space, time induced cause and effects.
-- Satwik Diet and Thoughts give you Satwik Intent/Vruti which make it easy to do Satkarma.
-- All experience is enabled first by Belief/Vision and then realized/preserved by Wisdom and experienced by Actions.
-- You should continue your Life towards Absolute Truth via Hope.
-- Use third party examples of such Life/Truth to inflate/Deflate/match Ego to prove God.
-- Study yourself and others going from **Hopeless to Hopefull**.
-- Study yourself and others going from **Fearful to Fearless, Limited to Limitless**.
-- Study yourself and others of transition from **feel->feel good->feel right->feel complete**.
-- Study yourself and other individual examples of **Common to unique/pure (across subject, object, mind, matter, space & time)**.
-- Peaceful expansion of the cosmos and your soul/body/knowledge across subject(s), object(s), mind(s), matter, space, time via methods like reflection, interpretation, reality, creativity and eventually quantum unification (direct experience) of every unique/pure soul as ONE.
-- If you cannot fix a problem in 9 months, you’ve taken up a wrong/large problem and there are better/smaller problems to be fixed first. Divide your original problem into smaller pieces.
-- Learn to decide when to focus the mind, brain, body like a laser (efficiency) vs torch (reliability).
-- Apply the above notes to your own goals/struggle/conflict or other’s struggle/conflict to understand what is lacking and what (guna, doshas) needs to be added/removed.
-- The first rule of productivity is focus. Do one thing, finish it, then move to the next thing.
-- Once you master the practice of the above topics you will realize that intuition is your best friend, think less but be precise and act more.
-- Improve the ability to remain in context no matter what the subject or object irrespective of the state of your mind, body (matter), surroundings (space/time).
-- Use a hot-cold joy-sorrow honor-dishonor alternating approach towards all situations in life and rise above these dualities.
-- Success = SatShishya(Opportunity + Capability + Intent) + (SatGurunath’s intent + God’s Intent).
-- Grand unified theory of everything can be experienced best when you become everything.
-- Longevity > Satisfaction > Happiness > Logic
+This means:
+- If you feel, then everything you can see/think/hear also feels, depending on how strongly you feel.
+- When you learn something unique/pure, the universe learns something unique/pure.
+- Your mind and body are not separate from God's mind—they are local expressions of it.
 
-### Exercise questions (hint: Answer is YES for all questions):
-- Am I feeling/using/measuring/enjoying/living via space/time or is space/time feeling/using/measuring/enjoying/living via me?
-- Am I feeling/using/measuring/enjoying/living my mind/body or is my mind/body feeling/using/measuring/enjoying/living through me?
-- Am I feeling/using/measuring/enjoying/living via subject/object/friends/family or is the subject/object/friends/family feeling/using/measuring/enjoying/living via me?
-- Am I feeling/using/measuring/enjoying/living God's or Universe's energy or is God or Universe's energy feeling/using/measuring/enjoying/living me?
-- Am I in God's mind or is God in my mind?
-- Am I in God's heart or is God in my heart?
-- Am I in God's intent or is God in my intent?
-- Am I living for God's Goal or is God living for my Goal?
-- Is Living the only Goal?
-- Am I God (with all his qualities/Gunas and Rasas) or is God me?
+The neutral child inside you is what keeps you universally curious and happy throughout life. This child-nature is your direct connection to the quantum field of consciousness. Distractions, brooding, negative patterns—these obscure the child. The practices in this treatise are designed to clear that obscuration.
+
+---
+
+### Chapter 3: Three Methods of Studying Absolute Truth
+
+God/Ishwar studies Absolute Truth through three approaches. These same approaches are available to you:
+
+**1. More Ego (Expansion)**
+Apply real hope on the Macro and Micro Universe(s) as a learning mechanism. This is the path of vision, ambition, creative expansion.
+
+**2. Balanced Ego (Sahaja Bhaav)**
+Balanced application of real hope and real limitations. This is co-emergent behavior—neither grasping nor rejecting, but moving with what arises naturally.
+
+**3. Less Ego (Contraction)**
+Apply real limitations as a learning mechanism. This is the path of discipline, renunciation, focused constraint.
+
+All three are valid. The question is: which does your current situation require?
+
+---
+
+### Practical Note 1: Identifying Your Current Method
+
+*Sit quietly for ten minutes.*
+
+Reflect on your present life situation—a challenge, a goal, a relationship.
+
+Ask yourself:
+- Am I applying too much hope without acknowledging real limitations? (More Ego imbalance)
+- Am I applying too many limitations without allowing real hope? (Less Ego imbalance)
+- Am I alternating between hope and fear without finding balance? (Sahaja Bhaav not yet established)
+
+Write your observation. Do not judge it. Simply notice which tendency is operating.
+
+Over the next week, experiment with applying the opposite tendency gently. If you have been all hope, introduce honest limitation. If you have been all limitation, introduce genuine hope.
+
+---
+
+## Part Two: SwaDharma—Your Unique Goal
+
+### Chapter 4: What is SwaDharma?
+
+SwaDharma is your own unique goal in life—the positive/unique state of your mind and body that allows you to live your goals uniquely and grow personally, in family, and in society.
+
+Universal Dharma and SwaDharma are the same principally. Only when pursuing both together do you find balance between mind and body, which leads to longevity and the unique/pure goals of you and the Universe via absolute discipline, order, and love.
+
+How do you find your SwaDharma?
+
+You inherit a collection of all your past causes and effects (karma) from yourself, parents/genetics, and environment. Identify that collection totally—through yogic/vedic lifestyle, through honest self-examination. Whatever unique remains to be done after this identification is your SwaDharma.
+
+Important: This can be and is superseded by your SatGurunath, because he understands you more than you understand yourself.
+
+---
+
+### Chapter 5: The Role of SatGurunath
+
+The SatGurunath (true teacher) sees your quantum/abheda relation with Guru and God. He perceives what you cannot perceive about yourself.
+
+This is not dependency but clarity. Just as you cannot see your own face directly, you cannot see your own SwaDharma directly. The SatGurunath serves as mirror and guide.
+
+The relationship with SatGurunath is itself part of God's algorithm—a mechanism by which the Infinite comes to know itself through the intimacy of teaching and learning.
+
+---
+
+### Practical Note 2: Clarifying Your Karma Collection
+
+*This exercise requires honesty and patience. Return to it many times.*
+
+**Part A: Inherited Patterns**
+List patterns you have inherited:
+- From parents/genetics (body tendencies, emotional patterns, talents)
+- From environment (cultural assumptions, social conditioning)
+- From your own past actions (habits, recurring situations)
+
+Do not judge these. Simply collect them.
+
+**Part B: What Remains**
+After identifying inherited patterns, ask: "What is uniquely mine to do that no one else can do in quite the same way?"
+
+This may not be a grand mission. It may be a quality of attention, a particular form of care, a specific skill applied in a specific context.
+
+Write what arises. If nothing arises, that is acceptable. Continue the practice.
+
+**Part C: Seeking Guidance**
+If you have access to a SatGurunath or qualified Poornawad practitioner, bring your observations to them. Their perception may reveal what your self-examination cannot.
+
+---
+
+## Part Three: The Path from Hopeless to Hopeful
+
+### Chapter 6: Hope as Life-Sustainer
+
+Hope gives birth to and sustains your Life. Change is always initiated and driven by Vision and Hope.
+
+The opposite is also true: feeling limited or fearful produces pain and blocks in mind and body.
+
+Life is sustained by the combination of alternating hope (yes) and fear/unknown (no). This is manthan—the churning that everyone goes through. The question is not how to avoid the churning but how to move through it toward greater hope, greater freedom.
+
+Study yourself and others going from:
+- Hopeless to Hopeful
+- Fearful to Fearless
+- Limited to Limitless
+- Feel → Feel Good → Feel Right → Feel Complete
+
+These transitions are the curriculum of human life.
+
+---
+
+### Chapter 7: Digesting Fear and Preserving Hope
+
+Two practical principles:
+
+**1. Don't worry about new experiences affecting you due to existing limits/fears.** Learn how to digest/mitigate the limits/fears by constant practice. Fear is not the enemy—undigested fear is.
+
+**2. Don't worry about losing new experiences found after practice.** Learn how to preserve/use them. Insights fade if not integrated into daily life.
+
+The ever-growing collection of absolute unique/pure experiences is Ishwar/God. You contribute to this collection through your own digestion and preservation of experience.
+
+---
+
+### Practical Note 3: The Transition Exercise
+
+*To be practiced daily for at least 21 days.*
+
+**Morning (5 minutes):**
+Ask yourself: "Where am I on the spectrum today?"
+- Hopeless ←→ Hopeful
+- Fearful ←→ Fearless
+- Limited ←→ Limitless
+
+Do not try to change your position. Simply notice.
+
+**Evening (5 minutes):**
+Review the day. Ask:
+- Did any moment move me toward hope, fearlessness, or expansion?
+- Did any moment move me toward hopelessness, fear, or limitation?
+- What can I learn from each?
+
+Record briefly. Over time, patterns will emerge.
+
+**Weekly:**
+Review your daily notes. Identify one small action that consistently moves you toward hope/fearlessness/expansion. Increase that action. Identify one pattern that consistently moves you toward hopelessness/fear/limitation. Reduce that pattern.
+
+---
+
+## Part Four: The Algorithm in Practice
+
+### Chapter 8: Satwik Living
+
+Satwik Diet and Thoughts give you Satwik Intent/Vruti which make it easy to do Satkarma (right action).
+
+This is not moralism but mechanics. What you consume—food, media, conversation, environment—shapes your intent. Your intent shapes your action. Your action shapes your experience. Your experience either contributes to or detracts from the ever-growing collection of unique/pure experiences that is God.
+
+Practical guidelines:
+- Eat food that clarifies rather than dulls the mind
+- Consume media that awakens curiosity rather than fuels brooding
+- Engage in conversation that moves toward understanding rather than conflict
+- Arrange your environment to support focus rather than distraction
+
+---
+
+### Chapter 9: Focus and Context
+
+The first rule of productivity is focus. Do one thing, finish it, then move to the next thing.
+
+Learn to decide when to focus the mind like a laser (efficiency) versus torch (reliability). Different situations require different approaches.
+
+Improve your ability to remain in context no matter what the subject or object, irrespective of the state of your mind, body, or surroundings. This is mastery.
+
+If you cannot fix a problem in 9 months, you have taken up a wrong or too-large problem. There are better/smaller problems to be fixed first. Divide your original problem into smaller pieces.
+
+---
+
+### Practical Note 4: The Nine-Month Rule
+
+*Apply this to any ongoing struggle.*
+
+1. Identify a problem you have been working on for more than 9 months without resolution.
+
+2. Ask: "Is this the right problem? Or is there a smaller, more fundamental problem underneath it?"
+
+3. Divide the large problem into smaller pieces. List them.
+
+4. Select the smallest piece that, if solved, would create the most movement.
+
+5. Focus on that piece alone for the next period. Finish it. Then move to the next.
+
+6. If after 9 months the smaller piece is still unsolved, divide again.
+
+---
+
+## Part Five: Realizing the Mind of God
+
+### Chapter 10: The Essential Questions
+
+Each question below dissolves the boundary between self and cosmos. The answer to all is YES—not as belief but as direct experience.
+
+- Is space/time living through me, or am I living through space/time?
+- Is my mind/body experiencing through me, or am I experiencing through it?
+- Are my relationships feeling through me, or am I feeling through them?
+- Is God's energy living me, or am I living God's energy?
+- Is God in my mind, or am I in God's mind?
+- Is God in my heart, or am I in God's heart?
+- Is God in my intent, or am I in God's intent?
+- Is God living for my Goal, or am I living for God's Goal?
+- Is Living itself the only Goal?
+- Am I God with all his Gunas and Rasas, or is God me?
 - Am I that which is Everything, Everywhere, Everytime?
 
-#### References
-- http://www.poornawadlifeengg.org/poornawad.html
-- A Beginner's Guide to Deep Reinforcement Learning (https://skymind.ai/wiki/deep-reinforcement-learning)
-- “When it is not in our power to determine what is true, we ought to act in accordance with what is most probable.” - René Descartes
-- “The highest activity a human being can attain is learning for understanding, because to understand is to be free.” - Baruch Spinoza
-- “Life is an art” - Hon. Dr. Ramchandra Pralhad Parnerkar
-- “Morality is Human” - Hon. Adv. Dr. Vishnu Ramchandra Parnerkar
+Hold both sides simultaneously. When duality collapses, what remains is Turiya.
+
+---
+
+### Chapter 11: Turiya—The Fourth State
+
+Turiya is you without past, present, or future causation. Consciousness unfiltered by personal history.
+
+Here you experience directly: the identity of self and God, the quantum unity of all things, the eternal now.
+
+Turiya cannot be forced. It reveals itself when obstacles dissolve—brooding, noise, stagnant patterns. Practice removes obstacles. Turiya is what remains.
+
+---
+
+### Chapter 12: Daily Practice for Realization
+
+The concepts in this treatise become lived experience through consistent sadhana. The following daily practice prepares mind and body to receive what words can only point toward:
+
+**Minimum Daily Practice:**
+- 12 Suryanamaskars (Sun Salutations)
+- 108 repetitions of Gayatri Mantra
+- 108 repetitions of Dattatreya Mantra (*Om Shri Guru Dattatreyaya Namaha*)
+
+This sadhana follows the lineage of Shri SatGurunath Hon. Dr. Ramchandra Pralhad Parnerkar, creator of the Abhinava Abhanga, and is transmitted under the guidance of Shri SatGurunath Hon. Adv. Dr. Vishnu Ramchandra Parnerkar.
+
+This practice purifies the body, sharpens the mind, and attunes consciousness to the quantum field. Over time, the exercise questions cease to be intellectual puzzles—they become descriptions of your direct experience.
+
+Perform this sadhana at dawn when possible. Consistency matters more than perfection. Begin where you are.
+
+---
+
+### Chapter 13: Success and Unity
+
+**Success = SatShishya (Opportunity + Capability + Intent) + SatGurunath's Intent + God's Intent**
+
+Success is alignment, not mere achievement. Your capacity joins with your teacher's guidance and God's direction. When all three flow together, right action becomes effortless.
+
+The grand unified theory of everything is best experienced by becoming everything. This is humility, not grandiosity—recognizing that your boundaries are provisional, that self is a wave in an ocean that is also you.
+
+Master these practices and intuition becomes your guide. Think less, but precisely. Act more.
+
+---
+
+## Closing: The Hierarchy of Value
+
+**Longevity > Satisfaction > Happiness > Logic**
+
+This ordering matters. Logic serves happiness. Happiness serves satisfaction. Satisfaction serves longevity. And longevity—not mere survival but full, blissful, expanding life—is what allows the Mind of God to continue learning through you.
+
+Use a hot-cold, joy-sorrow, honor-dishonor alternating approach toward all situations in life. Rise above these dualities. This is the path.
+
+The Mind of God is always thinking: *Increase your Lifespan and Bliss for FREE.*
+
+You are that Mind. You are that thought. You are that increase.
+
+Begin.
+
+---
+
+*"Life is an art" — Hon. Dr. Ramchandra Pralhad Parnerkar*
+
+*"Morality is Human" — Hon. Adv. Dr. Vishnu Ramchandra Parnerkar*
+
+---
+
+**For Further Study:**
+- Poornawad Philosophy: https://y20.poornawad.org/
+- Encyclopaedia on Shri Guru Dattatreya tradition: https://www.vvshirvaikar.de/Dattatreya/DP%20VVS%20FILES%20Portal.htm
+- Encyclopaedia on Shri Dnyaneshwari: https://www.vvshirvaikar.de/Dnyaneshwari/index-dn.html
+- The teachings of Shri Guru Dattatreya and the 24 teachers
+- Guidance from certified Poornawad philosophy practitioners
+
+**For Collaboration:**
+Rohan Rhishikesh Kanade
+kanaderohan@gmail.com | +919823299501 | +14385289061
+Jeevan Kala Mandir, Town Parner, District Ahmednagar, Maharashtra, India
