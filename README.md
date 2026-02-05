@@ -1,4 +1,4 @@
-# The Mind/Algorithm of God
+# The Mind/Prompt of God
 ## A Practical Treatise for Increasing Lifespan and Bliss
 
 *Based on Poornawad Philosophy*
